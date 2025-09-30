@@ -35,6 +35,9 @@ I will not tell you what the username is, find it yourself lol
 > _sawrams has been here_
 >
 > Certified Coopydood lover
+
+"Drew this guy as a furry and he probably hated me, i'll never know for sure. Technically has a fursona now ig" - kivya, probably. 2025
+
 <!-- This bio was infected by Coopydood -->
 <!--the following links do not work except for dogrose, whatever that is ~NN -->
 ![1](https://rozbrajacz.futbol/permanent/eversiege-1.png)
